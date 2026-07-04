@@ -51,3 +51,23 @@ Area of expertise - Demand Generation, Revenue Marketing, Organic B2B Growth
 Date accessed - 4th July, 2026
 
 ---
+
+Name - Justin Welsh
+
+Role - Writer-the saturday essay
+
+why selected - One of the best-known examples of organic LinkedIn growth and audience building
+
+LinkedIn profile - https://www.linkedin.com/in/justinwelsh/
+
+YouTube - not available 
+
+Website - https://justinwelsh.me/
+
+Area of expertise - Founder-Led Personal Branding, LinkedIn Audience Growth, Content Monetization
+
+Date accessed - 4th July, 2026
+
+---
+
+
