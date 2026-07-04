@@ -87,3 +87,21 @@ Area of expertise - Product Positioning, Go-to-Market Strategy, Messaging
 Date accessed - 4th July, 2026
 
 ---
+
+Name - Tyler Lessard
+
+Role - CMO at TechnologyAdvice 
+
+Why selected - Covers modern B2B content creation and distribution
+
+LinkedIn Profile - https://www.linkedin.com/in/tylerlessard/
+
+YouTube - Not available
+
+Webite - https://www.tylerlessard.com/
+
+Area of expertise - Video Marketing, Content Strategy, Thought Leadership
+
+Date accessed - 4th July, 2026
+
+---
