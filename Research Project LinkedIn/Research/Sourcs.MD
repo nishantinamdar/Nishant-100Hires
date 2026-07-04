@@ -105,3 +105,39 @@ Area of expertise - Video Marketing, Content Strategy, Thought Leadership
 Date accessed - 4th July, 2026
 
 ---
+
+Name - Amanda Natividad
+
+Role - Founder & co-auther-Zero Click Marketing, Cheif Evangelist-SparkToro
+
+Why Selected - Shares actionable advice on zero-click content and audience growth
+
+LinkedIn profile - https://www.linkedin.com/in/amandanat/
+
+YouTube - https://www.youtube.com/@amandanat_ 
+
+Website - https://amandanat.com/
+
+Area of expertise - Content Marketing, Zero-Click Marketing, Organic Social Strategy
+
+Date accessed - 4th July, 2026
+
+---
+
+Name - Kevin Indig
+
+Role - Advisor-Asana
+
+Why selected - Connects SEO, AI, and content strategy for B2B companies
+
+LinkedIn profile - https://www.linkedin.com/in/kevinindig/
+
+YouTube - Not available
+
+Website - https://www.kevin-indig.com/
+
+Area of expertise - SEO, AI Search, Organic Growth Strategy
+
+Date accessed - 4th July, 2026 
+
+---
