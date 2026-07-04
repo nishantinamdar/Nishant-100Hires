@@ -56,7 +56,7 @@ Name - Justin Welsh
 
 Role - Writer-the saturday essay
 
-why selected - One of the best-known examples of organic LinkedIn growth and audience building
+Why selected - One of the best-known examples of organic LinkedIn growth and audience building
 
 LinkedIn profile - https://www.linkedin.com/in/justinwelsh/
 
@@ -70,4 +70,20 @@ Date accessed - 4th July, 2026
 
 ---
 
+Name - April Dunford 
 
+Role - Founder-Ambient Strategy 
+
+Why Selected - Explains how positioning influences content effectiveness
+
+LinkedIn profile - https://www.linkedin.com/in/aprildunford/
+
+YouTube - https://www.youtube.com/@positioningshow
+
+Website - https://www.aprildunford.com/
+
+Area of expertise - Product Positioning, Go-to-Market Strategy, Messaging
+
+Date accessed - 4th July, 2026
+
+---
